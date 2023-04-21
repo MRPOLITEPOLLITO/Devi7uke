@@ -7,7 +7,7 @@
 
 - 😎 I’m currently learning **Unity VR Development**
 
-- 📲 Institutional mail **172817@upslp.edu.mx**
+- 📲 Institutional Email **172817@upslp.edu.mx**
 
 <h3 align="left">🧊Connect with me:</h3>
 <p align="left">
